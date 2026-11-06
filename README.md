@@ -6,8 +6,4 @@
  ![funny-durr](https://github.com/user-attachments/assets/18e960de-0922-4900-af3e-92d5a64adf61)
 
 
-i don't have dni but i block liberally based on vibes  ![jumping-drooling-emoji](https://github.com/user-attachments/assets/d77550a4-a3cb-40ae-93e6-bcec52856da6)
-
-
- ![durr-durr-emoji](https://github.com/user-attachments/assets/76166828-118e-4eae-998d-9068f5dc8d06)
-
+i don't have dni but i block liberally based on vibes  ![jumping-drooling-emoji](https://github.com/user-attachments/assets/d77550a4-a3cb-40ae-93e6-bcec52856da6) 
