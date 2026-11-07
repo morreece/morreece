@@ -2,8 +2,6 @@
 
 ***nintendo friend code 7170-4616-2913*** <img width="60" height="60" alt="tumblr_5a5dc38b26d318c574e28934e916ec66_694bb8e5_75" src="https://github.com/user-attachments/assets/38245932-c9ad-430e-b51a-1ec855f73323" />
 
-<img width="640" height="51" alt="круж" src="https://github.com/user-attachments/assets/1621b699-d512-4422-b5d6-7dbe65a95f50" />
-
 
 
 
@@ -24,5 +22,8 @@
 
 <img width="93" height="93" alt="tumblr_5c14ee13baf2be28038d8b86c518942b_7e846adb_100" src="https://github.com/user-attachments/assets/5b8dd872-2abc-4564-bc6c-b3039a069f65" />
 I don't have dni, but I block liberally based on vibes
+
+<img width="640" height="51" alt="круж" src="https://github.com/user-attachments/assets/4080d4a5-eb9d-4865-87b3-9de75aeacc6b" />
+
 
 
