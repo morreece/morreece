@@ -3,7 +3,7 @@
 <p align="center">  nintendo friend code 7170-4616-2913
 
 <p align="center"> <img width="60" height="60" alt="tumblr_5a5dc38b26d318c574e28934e916ec66_694bb8e5_75" src="https://github.com/user-attachments/assets/38245932-c9ad-430e-b51a-1ec855f73323" />
-
+</p>
 
 
 
